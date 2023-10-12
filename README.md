@@ -27,3 +27,7 @@
 <a href="https://github.com/Anastasyakh/KOMEN"><img width="400" height="120" src="https://github-readme-stats.vercel.app/api/pin/?username=Anastasyakh&repo=KOMEN&theme=chartreuse-dark"></a>
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 </p>
+  
+https://github.com/Anastasyakh/ReyyFUSHIGURO/assets/141108240/6ef13905-1d76-465b-ba5a-9a35f2fe8750
+
+https://github.com/Anastasyakh/ReyyFUSHIGURO/assets/141108240/7bf45cbb-f4fc-4972-9c90-dfc93259ecf0
