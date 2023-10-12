@@ -31,3 +31,5 @@
 https://github.com/Anastasyakh/ReyyFUSHIGURO/assets/141108240/6ef13905-1d76-465b-ba5a-9a35f2fe8750
 
 https://github.com/Anastasyakh/ReyyFUSHIGURO/assets/141108240/7bf45cbb-f4fc-4972-9c90-dfc93259ecf0
+
+![JJw96Ff](https://github.com/Anastasyakh/ReyyFUSHIGURO/assets/141108240/e62f1311-b466-4577-9a04-773993484d8c)
